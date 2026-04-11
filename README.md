@@ -7,6 +7,6 @@
 <p align="center"> $${\color{#B15F6A} Chance \space /Horror \space / Chase \space /Dusty }$$
 <p align="center">$${\color{#5B4F5F} mirror\space /any .\space aroace \space /pangender }$$
 <p align="center"> $${\color{#2E465A} 17 .\space Taken \space by \space <@perilkitty\space3 }$$
-<p align="center"> Rentry [WIP] . <a href="https://h0rr0z.atabook.org/">Ata . <a href="https://en.pronouns.page/@duzttyy">Pronouns </a> </p>
+<p align="center"> Rentry [WIP] . <a href="https://h0rr0z.atabook.org/">Ata . <a href="https://pronouns.cc/@Gambler">Pronouns </a> </p>
 
 <p align="center"> $${\color{#174357} Sign \space my \space ata \space + \space alt \space acc \space for \space matching \space only! }$$

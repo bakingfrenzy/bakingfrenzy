@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=bakingfrenzy&color=174357&style=for-the-badge&label=Baker's+fans)
   <p align="center">
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1491673405341044747/1491762252603457646/Untitled22_20260409062947.png?ex=69f92c1c&is=69f7da9c&hm=96220a9976118d77ff4ad8746ab98277e8e283a98c7986a81796d41aeebb3099&=&format=webp&quality=lossless&width=800&height=800">
+  <img src="https://media.discordapp.net/attachments/1491673405341044747/1491762252603457646/Untitled22_20260409062947.png?ex=6a01bddc&is=6a006c5c&hm=18978191517c922278c5fabc0b43597653e57c636abeb89c0b447a5cc93c33cc&=&format=webp&quality=lossless&width=800&height=800">
 
 </p>
 <p align="center"> $${\color{#B15F6A} Chance \space /Horror \space / Chase \space /Dusty }$$

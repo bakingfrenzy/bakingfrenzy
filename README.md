@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=bakingfrenzy&color=174357&style=for-the-badge&label=Baker's+fans)
+![](https://komarev.com/ghpvc/?username=bakingfrenzy&color=c26881&style=for-the-badge&label=Baker's+fans)
   <p align="center">
 <p align="center">
   <img src="https://files.catbox.moe/c98bm2.png">
